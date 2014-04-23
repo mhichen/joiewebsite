@@ -10,6 +10,14 @@ image:
   #creditlink: http://mademistakes.com
 ---
 
-## 地點:
+## 地點: 新竹縣竹北市高鐵七路65-19號
 
-### 新竹縣竹北市高鐵七路65-19號
+## 營業時間: Coming soon
+
+
+## 聯絡電話: Coming soon
+
+## 電子信箱: joiedesserts@gmail.com
+
+
+
